@@ -3,4 +3,4 @@ Ulrick is flashing it
 Some people came into the room.
 Michael is laughing so hard.
 Bevaaan - Yeeaaah!! - stfu bevan
-Tina is lost already
+Tina is lost already.
